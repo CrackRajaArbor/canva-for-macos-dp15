@@ -1,4 +1,4 @@
-# 
+# Canva for macOS rare Panel - UI themes and color correction offers the most advanced Canva for macOS panel, with UI themes and color correction. Ideal for professional designers
 
 
 
